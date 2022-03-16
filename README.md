@@ -1,0 +1,1 @@
+# shingokuchan.github.io
